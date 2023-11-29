@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 estudante, ampliar meu desempenho <br><br>
+🔭 estudante, ampliar meu conhecimento desempenho <br><br>
 
 
 # 💻 Tech Stack:
